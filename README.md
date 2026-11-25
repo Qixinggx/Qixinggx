@@ -1,3 +1,5 @@
+<img width="1200" height="400" alt="IMG_1112" src="https://github.com/user-attachments/assets/0187355b-4ddc-478c-a4d1-c0b3746ffd6a" />
+
 ✧─── ･ ｡ﾟ:⠀｡ﾟ• ⭑ .: . ───✧ 
 
 hayoo,,! im sayu/yin
@@ -9,10 +11,9 @@ im mostly seen w my kids or friends
 
 ✧─── ･ ｡ﾟ:⠀｡ﾟ• ⭑ .: . ───✧
 
-‧₊˚✩彡 fandoms im in!: madoka magica,ranfren,black butler,soul eater, sth/sth.exe!,jojos bizarre Adventure, genshin impact, honkai star rail(mostly for mydei, phainon, sunday and boothill), sally face, pjsk, panty and stocking, future diary, greek mythology (weirdos DNI)<img width="750" height="250" alt="IMG_1069" src="https://github.com/user-attachments/assets/20149910-38fe-4d9c-8de6-5d5e9f3d19f6" />
+‧₊˚✩彡 fandoms im in!: madoka magica,black butler,soul eater,jojos bizarre Adventure, genshin impact, honkai star rail(mostly for mydei, phainon, sunday and boothill), sally face, pjsk, panty and stocking, future diary, greek mythology (weirdos DNI),Apothecary diaries.
 
-
-
+<img width="800" height="282" alt="0235D4B6-C434-495B-AC21-58B675CC36BA" src="https://github.com/user-attachments/assets/5f44ca77-6df1-4fca-9349-9285d543a612" />
 
 ✧─── ･ ｡ﾟ:⠀｡ﾟ• ⭑ .: . ───✧
 
@@ -22,4 +23,5 @@ INT..: greek myth fans!, soul eater fans, creepypasta fans, dottore fans, jjba f
 im also a ganyu kin<3
 
 ✧─── ･ ｡ﾟ:⠀｡ﾟ• ⭑ .: . ───✧
-<img width="1200" height="743" alt="IMG_0752" src="https://github.com/user-attachments/assets/4c5e870d-b07b-414b-8c33-5a1091bec6e9" />
+<img width="1200" height="861" alt="IMG_1113" src="https://github.com/user-attachments/assets/b3953f1f-4de3-4534-9ef9-9c6bb7841396" /> 
+friends:  , https://github.com/forgedshadows , https://github.com/GOOD-FOR-NOTHING-CRIMINAL , https://github.com/cosmooirl , https://github.com/CANNIVORE
