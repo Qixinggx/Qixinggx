@@ -28,7 +28,10 @@ dni: racists,homophobes, n2zis and the basic problematic shit
 im a bit slow on understanding so bare w me.
 
 INT..: greek myth fans!, soul eater fans, creepypasta fans, dottore fans, jjba fans, DDLC fans, PMMM fans.
+
 im also a ganyu/odette kin<img width="20" height="20" alt="IMG_1124" src="https://github.com/user-attachments/assets/276eb09e-7d9f-4af3-8a4e-f6887fe90552" />
+<img width="256" height="256" alt="IMG_1171" src="https://github.com/user-attachments/assets/a923c321-a282-4055-8ae3-a7e8b17d1e5f" />
+<img width="256" height="256" alt="IMG_1172" src="https://github.com/user-attachments/assets/70d5c7e2-e2bc-4cbf-915e-0a2d854ffa48" />
 
 
 <img width="274" height="16" alt="IMG_1122" src="https://github.com/user-attachments/assets/a0eae396-c80a-4834-bf2a-ef98904a7c12" />
