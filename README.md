@@ -5,7 +5,9 @@
 <img width="274" height="16" alt="IMG_1122" src="https://github.com/user-attachments/assets/ad5bdbe2-5780-4da8-b855-36eb208ec08d" />
 
 
-hayoo,,! im sayu/yin
+hayoo,,! im sayu/yin 
+<img width="150" height="20" alt="IMG_1193" src="https://github.com/user-attachments/assets/0fd069a2-b513-4cf5-86ca-d1a7b6e105fb" />
+
 
 i go by sheher <img width="20" height="20" alt="IMG_1125" src="https://github.com/user-attachments/assets/04cbfd6c-6cbc-4162-bc88-dddd3db165b9" />
 
@@ -41,3 +43,11 @@ friends:  , https://github.com/forgedshadows , https://github.com/GOOD-FOR-NOTHI
 <img width="393" height="35" alt="IMG_1123" src="https://github.com/user-attachments/assets/ad7836ec-2dce-4c38-9bf3-e9936d76258a" />
 <img width="530" height="120" alt="IMG_1191" src="https://github.com/user-attachments/assets/987abccb-6a99-4b8e-ba87-cdeedecd5da5" />
 
+
+My Main Ocs!!
+ (Blackbutler)
+<img width="1670" height="1800" alt="IMG_1188" src="https://github.com/user-attachments/assets/005943e6-9940-4849-b493-543a123190cd" />
+(JJBA)
+<img width="1200" height="800" alt="IMG_0961" src="https://github.com/user-attachments/assets/375b8e54-39e6-48c5-91e3-498ae37fa5ce" /> 
+(Genshin impact)
+<img width="465" height="700" alt="IMG_0806" src="https://github.com/user-attachments/assets/553ad18b-da64-48a3-bcb1-c486b6bf0422" /> 
