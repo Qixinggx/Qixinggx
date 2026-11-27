@@ -39,4 +39,5 @@ im also a ganyu/odette kin<img width="20" height="20" alt="IMG_1124" src="https:
 <img width="1200" height="861" alt="IMG_1113" src="https://github.com/user-attachments/assets/b3953f1f-4de3-4534-9ef9-9c6bb7841396" /> 
 friends:  , https://github.com/forgedshadows , https://github.com/GOOD-FOR-NOTHING-CRIMINAL , https://github.com/cosmooirl , https://github.com/CANNIVORE
 <img width="393" height="35" alt="IMG_1123" src="https://github.com/user-attachments/assets/ad7836ec-2dce-4c38-9bf3-e9936d76258a" />
+<img width="530" height="120" alt="IMG_1191" src="https://github.com/user-attachments/assets/987abccb-6a99-4b8e-ba87-cdeedecd5da5" />
 
